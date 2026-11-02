@@ -1,0 +1,2 @@
+pretendo escribir aquí un montón de cosas. entre las letras de los temas para tenerlas organizadas, como ideas de inspiración para proyectos futuros. nada muy ordenado, pero sí organizado de forma jerárquica para saber que tengo que hacer y que no.
+todo público por supuesto porque puede ser útil para alguien i guess.
